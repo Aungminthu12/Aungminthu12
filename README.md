@@ -1,6 +1,6 @@
 # Hi, I'm Aung Min Thu!
 
-I'm a forklift driver and production worker at Ayeyarwaddy Food Industry Co., Ltd. (MAMA Noodles) since 2012. I’m from MaUbin, Ayeyarwaddy Region, Myanmar.
+I'm a forklift driver and production worker at Ayeyarwaddy Food Industry Co., Ltd. (MAMA Noodles) since 2008. I’m from MaUbin, Ayeyarwaddy Region, Myanmar.
 
 ## About Me
 - **Name**: Aung Min Thu  
